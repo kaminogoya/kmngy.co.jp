@@ -1,0 +1,1 @@
+# kmngy.jp
