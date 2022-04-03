@@ -1,1 +1,1 @@
-# kmngy.jp
+# kmngy.co.jp
